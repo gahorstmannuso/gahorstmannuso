@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @gahorstmannuso
+- 👀 I’m interested in Animes
+- 🌱 I’m currently learning Animes
+- 💞️ I’m looking to collaborate on Animes
